@@ -1,4 +1,4 @@
-![img](https://avatars.githubusercontent.com/u/126299944?s=300&v=4)
+![img](https://repository-images.githubusercontent.com/550440220/27b1b164-ef80-409c-b258-0f30ce105ca1)
 
 # Huxley Sales
 
